@@ -1,3 +1,12 @@
+# Razones por las que dani no deberia tener Regalo
+
+- Se porta mal en clase
+- No estudia
+- No atiende
+- No trabaja
+- Se porta mal
+- Si
+- Se lo merece
 # Razones por las que dani se va a quedar sin regalos estas navidades 
 
 1. por que le gustan las pollas 
